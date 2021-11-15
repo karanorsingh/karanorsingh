@@ -1,4 +1,4 @@
-### Hi there 👋, I am Karan sing!
+### Hi there 👋, I am Karan singh!
 
 Here are some ideas to get you started:
 
